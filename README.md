@@ -9,4 +9,4 @@ Paulo Vítor de Oliveira Foroni será responsável sobrmesa.
 Lucas da Silva Ramos será responsável pelo prato principal.
 Pedro Henrique Alves será responsável pela entrada.
 
-Após alguns pedidos dos amigos adicinamos receitas veganas e 0 lactose, além de um drink de acompanhamento.s
+Após requisitado por alguns amigos, foram adicionadas versões das receitas veganas, zero lactose e também um drink alcoólico de acompanhamento, garantindo assim uma maior abrangência para atender a todas necessidades.
